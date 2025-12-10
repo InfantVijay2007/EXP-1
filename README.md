@@ -53,20 +53,17 @@ b.  KCL:
 <img width="1920" height="1080" alt="Screenshot (63)" src="https://github.com/user-attachments/assets/c5d254e0-94b4-45a2-95d4-a8f51f3479cc" />
 
 
-![WhatsApp Image 2025-12-10 at 6 51 04 PM](https://github.com/user-attachments/assets/b77593f0-bfbc-41b2-8578-790d7c77fc45)
+![WhatsApp Image 2025-12-10 at 6 51 01 PM](https://github.com/user-attachments/assets/4c4d4462-31a0-41ed-9584-b073dccc1df4)
 
-![WhatsApp Image 2025-12-10 at 6 51 03 PM (1)](https://github.com/user-attachments/assets/4d9241ac-e888-4631-b9a4-acff5e6a4389)
+![WhatsApp Image 2025-12-10 at 6 51 02 PM](https://github.com/user-attachments/assets/06f304ec-ceb6-4d36-a37b-76dafd153c9d)
 
-![WhatsApp Image 2025-12-10 at 6 51 03 PM](https://github.com/user-attachments/assets/27b287e5-ecbe-4f54-8e9a-c17d0c5567f1)
+![WhatsApp Image 2025-12-10 at 6 51 02 PM (1)](https://github.com/user-attachments/assets/dd01095a-5be5-4899-9e20-b0aaa9d9b686)
 
-![WhatsApp Image 2025-12-10 at 6 51 02 PM (1)](https://github.com/user-attachments/assets/e5873128-c765-4136-97c0-7092ea656d19)
+![WhatsApp Image 2025-12-10 at 6 51 03 PM](https://github.com/user-attachments/assets/f668fc14-d9d5-49ad-85fe-ae7abc45241d)
 
-![WhatsApp Image 2025-12-10 at 6 51 02 PM](https://github.com/user-attachments/assets/1ab29175-3328-4d9f-80ed-1f377e8b6169)
+![WhatsApp Image 2025-12-10 at 6 51 03 PM (1)](https://github.com/user-attachments/assets/ed515582-2ad2-4a84-a0db-db132e06c3c5)
 
-![WhatsApp Image 2025-12-10 at 6 51 01 PM](https://github.com/user-attachments/assets/b5021036-73a9-4dff-8e26-6d496d831a36)
-
-
-
+![WhatsApp Image 2025-12-10 at 6 51 04 PM](https://github.com/user-attachments/assets/19b6c64c-5e80-4941-bf3f-a4e6ff5db4cd)
 
 RESULT:
 
